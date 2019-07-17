@@ -1,4 +1,4 @@
-[https://ihopeyouwin.github.io/neutronmail/neutronmailindex.html](https://ihopeyouwin.github.io/neutronmail/neutronmailindex.html)   -  view page
+[https://ihopeyouwin.github.io/neutronmail/neutronmail/index.html](https://ihopeyouwin.github.io/neutronmail/neutronmail/index.html)   -  view page
 
 
 
